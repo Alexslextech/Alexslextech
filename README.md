@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Alex Silvery
+- 👀 I’m interested in web app
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on different ideas
+- 📫 Reach me through +255 682 373 703 (whatsapp) - Email: alexs.lextech@gmail.com
